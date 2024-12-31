@@ -1,0 +1,6 @@
+# 《多语言国际版》共享汽车区块链版/源码/新增代理后台/海外理财投资/去除后门
+
+店主就是技术，有问题随时可以处理<br>本店承接一条龙搭建<br>官网：example.com/<br>------------------------------------------------------------------------------<br>example.com，去除后门。<br>example.com，<br>example.com，后台php语言开发。<br>example.com,语言在首页自助切换。<br>example.com.会员通过首页的邀请赚钱，分享推广二维码，可获取相应佣金。<br>我们有专业的开发技术团队，提供长期运营维护，有能力进行各种多次开发！<br>example.com，保证买到的和演示站一模一样！<br>此价格是源码的价格，如需二开请咨询客服另谈价格！按期交付<br>本源码仅供源码爱好者（站长）学习研究使用！本源码产品使用用途仅限于测试实验、研究学习为目的，<br>请勿用于非法运营，购买用户严禁将本产品用于与中国现行法律相违背的一切行为；请遵守国家法律法规，<br>切勿触碰法律！否则，请停止购买，如坚持使用一切法律责任及所有后果均由购买使用方承担，与本店无关，特此声明。<br>（购买就等认同以上声明）<br>我们有专业的开发技术团队，提供长期运营维护，有能力进行各种多次开发！<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/76tOV" style="color: red;">https://mega-file.org/76tOV</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
